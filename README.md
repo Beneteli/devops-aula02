@@ -1,3 +1,4 @@
 # Denzel Washington
-# Jackie Chan
+# Jet Lee
 # Mark Walhbergh
+# Angelina Jolie
